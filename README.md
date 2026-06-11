@@ -7,10 +7,6 @@ Here are some ideas to get you started:
 
 - 🩹 Jogo vôlei
 - 🎈 Amo assistir filmes de terror
-- 🐝 Oque eu mais jog é roblox e genshin
-- 🧃 Amo descobrir novos jogos filmes musicas atc
-- 🫀 Amo _Naruto_
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🐝 Oque eu mais jogo é roblox e genshin
+- 🧃 Amo descobrir novos jogos, filmes e músicas
+- 🫀 Amo o anime Naruto
