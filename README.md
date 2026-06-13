@@ -4,9 +4,9 @@
 
 - 🩹 Meu anime favorito é Naruto
 
-- 🎈 Adoro assistir e jogar de tudo
+- 🎈 Amo filmes de terror
 
-- 🎮 Oque eu mais jogo é roblox e genshin
+- 🎮 Jogo mais genshin e roblox
 
 - 🎼 Amo música!
  
